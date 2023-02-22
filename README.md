@@ -16,7 +16,7 @@ Here are some ideas to get you started:
 -->
 - Who is Dikachi 🤷‍♂️: 
 
-I am a rising talent with strong problem-solving skills and over 2 years experience in software development and 
+I am a rising talent with strong problem-solving skills and over 3 years experience in software development and 
 software installation. Organized and always ready to learn and unlearn, to ensure constant development and 
 efficiency.
 
