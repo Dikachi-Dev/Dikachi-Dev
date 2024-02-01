@@ -22,7 +22,7 @@ efficiency.
 
 - 🔭 I’m currently working on ... Work Space For Handy men 
 - 🌱 I’m currently learning ... Clean Architecture 
-- 📫 How to reach me: ... WhatsApp and IMessage +234 8073702017 / mail onyedikachiosuigwe@gmail.com
+- 📫 How to reach me: ... WhatsApp and iMessage +234 8073702017 / mail onyedikachiosuigwe@gmail.com
 - 😄 Pronouns: ... He
 - ⚡ Fun fact: ...I love football but can't play 😂. I am a liverpool fan
 
