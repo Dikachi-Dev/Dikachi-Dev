@@ -5,25 +5,25 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
+- 🔭 I’m currently working on ... Work Space For Handy men 
+- 🌱 I’m currently learning ... Clean Architecture 
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 📫 How to reach me: ... WhatsApp and IMessage +234 8073702017 / mail onyedikachiosuigwe@gmail.com
+- 😄 Pronouns: ... He
+- ⚡ Fun fact: ...I love football but can't play 😂. I am a liverpool fan
 -->
 - Who is Dikachi 🤷‍♂️: 
 
-A decent programmer with strong problem-solving skills and over 3 years experience in software development and 
+A decent programmer with strong problem-solving skills and over 2 years experience in software development and 
 software installation. Organized with constant hunger to learn and improve, to ensure constant development and 
 efficiency.
 
-- 🌱 I’m currently working on improving my problem solving skills and just learning.
-
-- 💬 Ask me about anything if i don't have the answer at the moment i will get point you in the right direction 😊
-- 📫 You can email me on  this address : onyedikachiosuigwe@gmail.com  or Call or Message my number : +2348073702017.
-- 😄 My Pronoun: He
+- 🔭 I’m currently working on ... Work Space For Handy men 
+- 🌱 I’m currently learning ... Clean Architecture 
+- 📫 How to reach me: ... WhatsApp and IMessage +234 8073702017 / mail onyedikachiosuigwe@gmail.com
+- 😄 Pronouns: ... He
+- ⚡ Fun fact: ...I love football but can't play 😂. I am a liverpool fan
 
 
