@@ -11,7 +11,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ... WhatsApp and IMessage +234 8073702017 / mail onyedikachiosuigwe@gmail.com
-- 😄 Pronouns: ... He
+- 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ...I love football but can't play 😂. I am a liverpool fan
 -->
 - Who is Dikachi 🤷‍♂️: 
